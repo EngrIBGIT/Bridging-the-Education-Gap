@@ -63,5 +63,5 @@
 
 
 
-
+Medium blog post link:
 ***[Bridging the Education Gap: Leveraging Community Engagement to Provide Quality Education](https://medium.com/@ibrahim5322022/bridging-the-education-gap-leveraging-community-engagement-to-provide-quality-education-to-f0b80849b6aa)***
